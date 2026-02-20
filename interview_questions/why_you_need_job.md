@@ -1,0 +1,3 @@
+Why do you want this job?
+
+I want this job because it aligns well with my skills, interests, and the direction I want to grow in professionally. I’ve taken time to understand this role and the kind of work your team does, and it genuinely excites me because it allows me to apply what I’ve learned while continuing to develop new skills. I’m looking for a role where I can contribute meaningfully, learn from experienced professionals, and grow with the organization—and this position offers exactly that.
